@@ -1,2 +1,2 @@
 # Ndabyunva
-<a name="action" href="https://www.google.rw" >GOOGLE</a>
+<a name="action" href="http://linkshrink.net/7l33lk" >GOOGLE</a>
